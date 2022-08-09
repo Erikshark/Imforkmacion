@@ -1,1 +1,1 @@
-# Esta estrenada mente prohibido copiar la la página
+# Esta estremadamente prohibido copiar y modificar la pagina
